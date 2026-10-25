@@ -1,0 +1,1 @@
+- Size rings for an average-to-thin Asian woman: US 5, 15.7 mm inside diameter, unless a measured size is given. Added 2026-10-24.
